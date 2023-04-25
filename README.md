@@ -2,7 +2,7 @@
 
 **[Abc.com/activate](https://abcactivate.github.io)** network is one of the most working networks in the united states. It provides fresh movies and web series released in the united states. ABC provides more than 250 popular channels that will fascinate you. Also, the ABC subscription is cheaper than the other streaming service. You can easily download the ABC application on your smart device and then activate the ABC network on your tv. This will require some basic knowledge, and its provided in the below-provided steps. So let's begin with the ABC activation.
 
-[Abc.com/activate](getstarted.png)
+[Abc.com/activate](getstarted.png.png)
 
 
 ## How to create a subscribed account on the ABC network?
